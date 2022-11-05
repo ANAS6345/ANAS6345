@@ -11,6 +11,14 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 😄 Pronouns: ..
+I'm looking for hlep with
+Hfhhbjiuu
+Ghjsiisusudisisisisii
+Smkkskskskssjsjs
+Kskskskskskeskkdkdke
+Dmskkdksxdjdjsjskdkd
+00030101010200110011010000001
+001010010110100011111110101010100101
+0001010101101010100100100
+010100101010101000
